@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ArnauCh7
-- 🌱 I’m currently learning aerospace engeneering at UPC
+- 🌱 I’m currently studiyng aerospace engeneering at UPC
 - 📫 How to reach me: Discord: Sekki #5340
